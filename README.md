@@ -9,5 +9,4 @@ I love to talk about
 - Leading teams in designing complex, scalable systems
 
 ## Contact Me
-- Twitter: [@bob_brodie](https://twitter.com/bob_brodie)
 - LinkedIn: [Robert Brodie](https://www.linkedin.com/in/rbrodie/)

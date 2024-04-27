@@ -1,4 +1,5 @@
 # Bob Brodie
+Delivery Director @ [ITX](https://www.itx.com)
 Co-founder @ [SUMO Heavy Industries](https://www.sumoheavy.com)
 
 ## Interests
